@@ -9,20 +9,12 @@
 ">that</a>
 
 </h1><h1>Fortnite.This is vere popular game.This game creat company "Epic Games"
-</h1><h1>This company creat more games.24 April wos concert "Travis Scott".on this time in game start play 12 million player on one time.
-
-  <br>
-
-                 <img src="Trawis Scott.jpg">
-
-            
-
-<br>
-</h1><h1 style="color:red">My name in fortnite "GameringPro".Please frend me and give gift please.
+</h1><h1>This company creat more games.24 April wos concert "Travis Scott".on this time in game start play 12 million player on one time.This world record
+</h1><h1 style="color:red">My name in fortnite "NeMo Eyan".Please frend me and give gift please.
 </h1><h1>Fortnite one time on year do chapionat.To this championat go cibersportsmens.
 </h1><h1>Very popular cibersportsmens:Mongral,Tfue,Bugha,Bengofish...
 </h1><h1>Company EpicGames have mane games.Because Fortnite her most popular game.
 </h1><h1>They have games.these are:BattleBreakers,Force...
 </h1><h1 style="color:red"><li>And this is very popular game.</li>
-</h1><h3>Psssssssss...Give me gifts my nick GameringPro
+</h1><h3>Psssssssss...Give me gifts my nick NeMo Eyan
 </h3></body></html>
